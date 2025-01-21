@@ -7,6 +7,6 @@ I am currently learning to make a roblox game, if you want to, you can [join the
 <img src="https://i.pinimg.com/736x/be/da/c0/bedac06fe7f3f57d9a5fa0678ee09cbb.jpg" height="100" width="100"/>
 <br>
 
-[https://elzorroz.straw.page/](https://elzorroz.straw.page/)
+[My strawpage!](https://elzorroz.straw.page/)
 <br>
-[https://pronouns.cc/@..The_Wilds..](https://pronouns.cc/@..The_Wilds..)
+[My pronouns.cc!](https://pronouns.cc/@..The_Wilds..)
